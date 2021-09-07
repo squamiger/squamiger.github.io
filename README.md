@@ -1,4 +1,4 @@
-## Welcome to my dick
+## poaster
 
 The wantonness of the conqueror that knows no respect for any creature or thing that is at its mercy or is imagined to be so, the despair of the soldier that drives him on to destruction, the obliteration of the slave or the conquered man, the wholesale slaughter — all these elements combine in the Iliad to make a picture of uniform horror, of which force is the sole hero. A monotonous desolation would result were it not for those few luminous moments, scattered here and there throughout the poem, those brief, celestial moments in which man possesses his soul. The soul that awakes then, to live for an instant only and be lost almost at once in force's vast kingdom, awakes pure and whole; it contains no ambiguities, nothing complicated or turbid; it has no room for anything but courage and love.
 
